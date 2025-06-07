@@ -15,7 +15,7 @@
 
 ## 🎉 Fun Facts About Me:
 🧁 I love baking — nothing beats the smell of fresh cookies after a long coding session  
-🧶 Crocheting is my go-to creative escape (bonus points if it's a cozy blanket!)  
+🧶 Crocheting is my go-to creative escape
 🎨 I unwind by sketching or designing digital art — creativity fuels my logic  
 🍛 Big foodie at heart — I enjoy both cooking new dishes and eating them enthusiastically  
 👨‍👩‍👧‍👦 I cherish spending quality time with my family — they keep me grounded and inspired  
