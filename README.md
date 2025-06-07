@@ -1,4 +1,4 @@
-# Hi there 👋
+# Hi, I'm Sindhu ✨
 
 ## 💫 About Me:
 🧠 PhD student in Computer Science at the University of North Texas, specializing in AI research<br>
